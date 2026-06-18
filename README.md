@@ -1,1 +1,1 @@
-# Healthy-Living-Small-Steps-Big-Impact.
+"Living a healthy lifestyle is all about small, consistent steps. Whether it's hitting the gym, eating right, or just getting enough sleep, every little bit adds up. Remember, it's not just about looking good—it's about feeling great too! 💪🌟 Let's make today the day we commit to a better us!"
